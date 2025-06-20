@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Tom André Hansen
 
-- 📫 https://www.linkedin.com/in/tohan/
+- 📫 https://www.linkedin.com/in/tomingvin
 
 
 <!---
